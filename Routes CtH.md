@@ -37,25 +37,41 @@
 5. Herenmarkt 99 (West-Indisch Huis)
 6. Herengracht 133 (Coffeeshop Amnesia)
 7. Hoek Raadhuisstraat (Paleis op de Dam zichtbaar)
+
 * Gasthuismolensteeg
+
 8. Singel 295 (Bordeel Yab Yum)
+
 * Raamsteeg
 * Rosmarijnsteeg
+
 9. Sint Luciensteeg 27 (Meisjesbinnenplaats)
 10. Amsterdam Museum
+
 * Schuttersgallerij
+
 11. Bagijnhof
+
 * Spui
 * Rokin
 * Langebrugsteeg
+
 12. Grimburgwal (Gebed zonder Eind)
+
 * Oudezijds Achterburgwal
+
 13. Oudemanhuispoort 
 14. Kloveniersburgwal (de Waag, links in de verte)
+
 * Staalstraat
+
 15. Kloveniersburgwal, Staalmeestersbrug (de Zuidertoren, links in de verte)
+
 * Amstel
+
 16. Zwanenburgwal Standbeeld Baruch de Spinoza
+
 * Waterlooplein
+
 17. Jodenbreestraat 4 (Rembrandthuis)
 18. Mr. Visserplein (Portugese Synagoge)
